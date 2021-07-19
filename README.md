@@ -1,1 +1,1 @@
-# welcome-to-the-party.com
+# https://shantanugeekhub.github.io/welcome-to-the-party.com/
